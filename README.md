@@ -1,1 +1,1 @@
-# pritarmdhni.github.oi
+# pritarmdhni.github.io
